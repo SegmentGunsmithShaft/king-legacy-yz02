@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with hidden Scripts for king legacy, the #1 Script. Includes teleport and esp for unbeatable performance.
 
 
 
